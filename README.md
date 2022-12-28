@@ -1,5 +1,5 @@
-# Dr Daniel Hagen
-Page under construction
+# Daniel Hagen, PhD | Associate Professor in Mechatronics at the University of AGder
+This page is under construction. Meanwhile, check out my other pages:
 
 [LinkedIn](https://www.linkedin.com/in/hagenmek/)
 
