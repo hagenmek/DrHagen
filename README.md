@@ -1,6 +1,7 @@
 # Dr Daniel Hagen
 Page under construction
 
-Visit my LinkedIn page: https://www.linkedin.com/in/hagenmek/
+LinkedIn: https://www.linkedin.com/in/hagenmek/
+University: https://www.uia.no/en/kk/profile/danielh
 
 
