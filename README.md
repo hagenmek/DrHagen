@@ -5,5 +5,7 @@ Page under construction
 
 [University of Agder](https://www.uia.no/en/kk/profile/danielh)
 
+[Norwegian Society of Mechatronics](https://nsom.no/)
+
 
 
