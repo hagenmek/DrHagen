@@ -1,4 +1,5 @@
-# Daniel Hagen, PhD | Associate Professor in Mechatronics at the University of AGder
+# Daniel Hagen, PhD 
+# Associate Professor in Mechatronics at the University of Agder
 This page is under construction. Meanwhile, check out my other pages:
 
 [LinkedIn](https://www.linkedin.com/in/hagenmek/)
